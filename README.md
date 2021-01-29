@@ -159,4 +159,4 @@ ____
 
 ## Contact
 
-julie.pratx@gmail.com
+If you have any question please write me at julie.pratx@gmail.com
