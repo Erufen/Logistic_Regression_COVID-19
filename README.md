@@ -156,3 +156,7 @@ ____
 * LinearRegression
 
 ____
+
+## Contact
+
+julie.pratx@gmail.com
