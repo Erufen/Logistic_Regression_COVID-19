@@ -1,5 +1,5 @@
 _________
-![Zozor](https://zupimages.net/up/21/04/jlm4.jpg)
+![Zozor](https://zupimages.net/up/21/04/ed8x.jpg)
 __________
 
 
